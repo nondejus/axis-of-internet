@@ -1,1 +1,0 @@
-# google-terrorist-organisation
